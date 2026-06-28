@@ -1,4 +1,4 @@
-# 
+# Avancé QuickBooks modules complémentaires pour Mac OS | Ultime QuickBooks modules complémentaires pour PC Windows. Avec synchronisation dans le cloud et chiffrement de PDF — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
